@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @jonmjoh
+- 👀 I’m interested in silence
+- 🌱 I’m currently learning computers
+- 💞️ I’m looking to collaborate on work
+- 📫 Reach me by poke
+- 😄 Pronouns: hee/hee 🕺
+- ⚡ Fun fact: I like coffee
